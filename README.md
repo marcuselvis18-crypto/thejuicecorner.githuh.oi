@@ -1,1 +1,1 @@
-# thejuicecorner.githuh.oi
+# thejuicecorner.githuh.io
